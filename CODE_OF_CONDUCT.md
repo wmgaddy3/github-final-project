@@ -1,1 +1,1 @@
-All contributions, bug reports, bug fixes, documentation improvements, enhancements, and ideas are welcome.
+Our goal is to create a welcoming environment where everyone feels respected and valued.
